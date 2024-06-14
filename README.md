@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **komalkantdeshmukh112@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1eLtuUx24mWtwke0hB-CNZSlNRjWVDnsc/view?usp=sharing
+- 📄 Know about my experiences check out my resume  https://drive.google.com/file/d/1eLtuUx24mWtwke0hB-CNZSlNRjWVDnsc/view?usp=sharing
 
 - ⚡ Fun fact ** I am a person with Self-Motivated , positive attitude and adaptive in nature**
 
